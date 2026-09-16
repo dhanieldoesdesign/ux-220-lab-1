@@ -1,6 +1,11 @@
-# The favourite thing I wrote
-Lorem ipsum dolor sit amet consectetur adipiscing elit aliqua. Cupidatat laborum eiusmod omnis quas et qui eum repellendus id. Quibusdam voluptas enim facilis quod irure nam.
+# My favourite thing I wrote
+Hello! My name is Dhaniel. The favourite thing I wrote was a recipe I shared with friends and family. I don't write formally much, though I am known to ramble a lot.
 
-Facere odio maxime rerum dolor autem proident sint imperdiet proident ad qui dignissimos. Reprehenderit nihil laboris corrupti qui culpa. Cupiditate et eu maxime mollit nihil commodo sit est.
+Fortunately, recipes require a structured format for it to be easily legible. The recipe is pretty much the only large bit of formally-written text that I wrote that wasn't for an assignment.
 
-Ex et maxime est nobis est ea ex quibusdam eos minim ad qui. Expedita mollit id temporibus est nisi excepturi et quo amet non. Minim et nihil quibusdam cum proident voluptas quod fugiat temporibus proident reprehenderit. Expedita culpa occaecat quibusdam corrupti et non duis qui et et illum et. Pariatur veniam in consequatur mollitia in sit reprehenderit ut et dolor.
+It's my favourite because I got to express my largely hidden passion for cooking and tasting, and I get to share my mixed Chinese-Indonesian heritage in the form of flavours and aromas that I grew up with. Not to mention, it strengthens the family bond even whilst overseas. Even though we are a worlds away, developing this recipe allowed me to keep in touch with my older brother—who is currently pursuing the culinary arts.
+
+The experience of developing the recipe was an enjoyable one; but everything that led to its creation, and everything that came after, made it truly unforgettable.
+
+---
+*You must be curious what the recipe is, but that's a family secret!* 😉
